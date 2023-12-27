@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Sandeep
-- 🌱 I’m currently learning some stuff 🙄
+- 🌱 I’m currently learning some stuff 😁
 - 📫 How to reach me : https://www.linkedin.com/in/sandeep-kannaujiya-00957114b/
 
 <!---
